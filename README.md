@@ -3,7 +3,7 @@
 
 more more silly
 
-<img width="1200" height="1200" alt="IMG_0050" src="https://github.com/user-attachments/assets/b4e30d3d-42e4-4e2a-91ba-b84326f66bd7" />
+<img width="600" height="600" alt="IMG_0050" src="https://github.com/user-attachments/assets/b4e30d3d-42e4-4e2a-91ba-b84326f66bd7" />
 
 
 
