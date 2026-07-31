@@ -6,6 +6,3 @@ more more silly
 <img width="600" height="600" alt="IMG_0050" src="https://github.com/user-attachments/assets/b4e30d3d-42e4-4e2a-91ba-b84326f66bd7" />
 
 
-
-im a fictkin of ena and minori ! and I yume mizuki and haruka !! 
-don’t be afraid to be my friend! :3 also this was very rushed 😢 
