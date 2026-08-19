@@ -1,8 +1,3 @@
-
-<img width="1280" height="160" alt="Untitled84_20260818030419" src="https://github.com/user-attachments/assets/1df864db-bce5-494c-98ef-25aa384a8671" />
-
-<img width="700" height="820" alt="IMG_0408" src="https://github.com/user-attachments/assets/70db0d48-bbc4-4e20-b7e8-6b57edef5c4f" />
-
-<img width="1280" height="160" alt="Untitled84_20260818030419" src="https://github.com/user-attachments/assets/1df864db-bce5-494c-98ef-25aa384a8671" />
-
-okay why is the quality so ass bruh 😭 
+<img width="900" height="5" alt="IMG_0461" src="https://github.com/user-attachments/assets/1a2deb8e-ce50-42d3-800e-343a805b463b" />
+<img width="2520" height="1440" alt="IMG_0447" src="https://github.com/user-attachments/assets/865a420b-fd03-4d5b-8e31-074176a6f86d" />
+<img width="900" height="5" alt="IMG_0461" src="https://github.com/user-attachments/assets/db02e5ea-4e7a-4ec7-a316-27e9e351a456" />
