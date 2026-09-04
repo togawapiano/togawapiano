@@ -19,7 +19,7 @@ UMM DNIS .. OK ! basic dni !! tfc fans THESE…sensitive people UMM under 14… 
 
 <img width="230" height="20" alt="IMG_0830" src="https://github.com/user-attachments/assets/3eb6c7cd-a2df-4bd1-8f12-6d6f7dcb2a04" />
 
-some extra stuff about me HEH!ok. im a bunnyokay and i fictkin minori emu ena pareo moca ANDD……….callie!! :)) int splatoon fans okay
+some extra stuff about me HEH!ok. im a bunnyokay and i fictkin minori emu ena pareo moca ANDD……….callie!! :)) int splatoon fans okay I lovewomen too mm!!
 
 OKE DATS ALL!! ty for reading!! >u<
 
